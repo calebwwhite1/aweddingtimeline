@@ -1,2 +1,0 @@
-# aweddingtimeline
-wedding timeline
